@@ -1,2 +1,3 @@
-# Tr-n-Xu-n-Th-nh
+# Trần Xuân Thành
 -Freshman in University of Information Technology
+-A Member of Cinephiles
